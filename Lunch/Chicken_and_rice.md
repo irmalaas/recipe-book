@@ -13,4 +13,4 @@
 1. **Cook the rice**:
 Season with salt, cook until soft
 2. **Prepare the chicken**:
-Season with salt and pepper or any other ingredients
+Season with salt and pepper or any other seasonings
